@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @EmmaPd
-- 👀 I’m keen on coding, trading, 80s, and organizing drawers. HEHE
+- 👀 I’m keen on coding, trading, listening to old records, and organizing drawers. hehe
 - 🌱 I’m self-learning Python.
 - 📫 If you are in the same coding journey as mine, let's meet. 
 
